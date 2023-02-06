@@ -1,3 +1,3 @@
 # Building Relationships with Cousins
 
-![image](BuildingbondwithCousinsnearBoston.JPG)
+![image](BuildingbondwithCousinsnearBoston.jpg)
